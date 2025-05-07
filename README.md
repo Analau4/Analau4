@@ -16,7 +16,7 @@ Let me talk you more about me :
 - 📫 How to reach me : [www.linkedin.com/in/analaura-cruzhernandez]
 - ⚡ Fun fact: Before I was a teacher of spanish language in "Education National" in France ! I love grammar and linguistics ! 
 
-Well, you might ask what is a Xoloitzcuintle. It is a majestic and native dog from mexican culture. If you saw "Coco" film, you know what i'm talking about ! 
+Well, you might ask what a Xoloitzcuintle is. It is a majestic and native dog from mexican culture. If you saw "Coco" film, you know what i'm talking about ! 
 If not, and if you got curious, visit the page : [https://www.ngenespanol.com/animales/xoloitzcuintle-leyenda-del-perro-azteca-prehispanico-y-su-significado/]
 
 >> Yes, I'm **proud** of my culture ! :blush: 
